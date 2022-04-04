@@ -1,4 +1,4 @@
-Howdyyy from the Bay Area
+~ Howdyyy from the Bay Area
 ~
 ☘️/🌸
 ~
